@@ -1,21 +1,27 @@
 <!---
 
 
- 
-          ⣦⠘⣽⣀⣀
-      ⣀⠤⠟⢛⣿⠉⣾⢭⣀⡉⣳
-    ⡰⠋⣁⡴⠛⠉⢹⣟⣻ ⣴⠶⠃
-   ⡼⠁⣞⢁⡠⠔⠒⠉⠉⠉⠉⠙⠲⡤⣀
-   ⠈⢉⠟⠉       ⡀ ⠘⣦⣉⠩⡇⢳              Hello! Paimon is here to help!
-   ⣠⠃    ⢀⣠⡀   ⠸⡢⡠⢿⣿⡇  ⠉⠈⡹        
-⡒⠋⠁  ⡀  ⢀⠇⡵⣖  ⡀⢇⠉⠢⡉⢳  ⢏⠁     Paimon doesnt care if you star Paimons Repositories,
-⠉⢒⠖ ⢠   ⡟ ⣀⣈⠑⠢⠽⠝⢀⣶⣜⡄  ⠈⡆          as long as you dont copy Paimons Layout you're free to
-⢀⡏  ⡄  ⠈⡇ ⠿⠿⠃     ⠙⠉ ⠸⡄  ⢸               copy and paste the codes you're in need of!
-⢸⠁  ⡇   ⢹⣦    ⢏⠉⠉⠜  ⣠⠇⡆   ⢱
-⢸⡄  ⡇   ⠘⢳⢳⣠⣤⣤⡴⠶⡾⣿⡿⣿⠁    ⡇                              Paimon wishs you Luck :D
- ⢳⡄ ⢳⡀ ⢠ ⠹⣿⡾⠘⠖⠱⣶⣴⡆⣹⣧⣾⠃⠒⠁
-   ⠉⠳⠿⠶⣬⣿⣶⣾⣿⣦⣓⠘⢋⣛⣧⡴⠻⡃         
-    ⢀⣠⡾⠿⣿⣄⣤⢹⡎⠉⠉⠍⠉⠁⠠ ⢱⡀
+
+>> Opening NeiKos496.exe ⣀
+>> Running Program Version 3.355.03.36
+
+
+   ⠀⠀⠀⠀⠀⠀⢀⣠⠀⠀⣀⣀⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+   ⠀⠀⠀⠀⠀⢠⠋⡧⠊⠁⢀⠤⠐⠚⠂⠀⠀⠀⠀
+   ⠀⠀⠀⠀⠀⢺⢰⠁⢀⡴⠗⡋⠉⠉⠉⠉⠒⠢⢄⡀⠀
+   ⠀ ⠀ ⠀⡠⠟⢦⢋⠄⠁⠈⠁⠢⡀⠀⠀   ⠀⠀⠉⠑⠒⠒⡸⠀⠀                  Greetings, Trailblazers!
+      ⢠⠎⠀⠀⠀⣡⠀⠀⠀⠀⠀⠈⢃⠀⠀   ⠈⠢⡐⠲⡖⠁⠀               May you find what you are in need in this place.
+   ⠀⠀⡎⠀ ⠀⠰⢴⢸⠀⠀⠀⠀⠐⠀⠀⢣⡀⠀⡀   ⠘⡄⠘⢆
+   ⠀⣰⠁⢀ ⠀⠀⠢⠼⡄⠀⠀⠀⠀⣅⡀⠀⠙⠦⣡   ⠀⠈⠢⣀⣱⠖       Please keep in mind that i dont want my layout copied.
+  ⠀⡠⠁⠀⡘⠀ ⠠⠤⠄⢃⡀⠀⠀⡐⣿⢣⡤⣤⡀⢠⠊  ⢰⠒⠒⠣⡀                 Otherwise, feel free to copy the code you need.
+  ⠉⠒⠿⠔⠁⠀ ⣦⣤⣤⡬⣆⠀⠀⠇⡟⡿⡹⢿⠈⡇⠀  ⣬⣀⢰⠤⠚           Theres no need for leaving a star.
+   ⠀⠀⠣⠀⠀⠀⠩⢍⢿⠑⢟⠓⢶⠾⣱⠗⠉   ⣴  ⣠⣾⠩⣃⡀
+  ⠀  ⠜⠲⠜⠳⣄⡐⢟⠁⠁⠀⢂⠉⠙⠀⢀⠴⠚⢿⣧
+ ⠀  ⠀⠀   ⠀⠀⠈⡽⢙⣲⡤⣤⣤⣴⣶⣿⣲⣵⣇⠀⠀                                               i Wish you luck!
+ ⠀  ⠀   ⠀⠀ ⠀⣯⡔⠶⣿⡗⢻⣿⡛⡏⣵⣧⢻⠣ 
+ ⠀⠀⠀  ⠀⠀⠀⠀⠴⣸⣸⠚⣻⣵⡼⣿⣧⡏⣿⢄⣧⣵⠑⡀
+
+
 
 
 
