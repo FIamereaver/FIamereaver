@@ -92,7 +92,7 @@ and also respect my F/Os! ♡ <img src="https://64.media.tumblr.com/dd61891a5737
 
 ![](https://komarev.com/ghpvc/?username=FIamereaver&color=af342f&label=˚̣̣+𓈒+◌&abbreviated=true) ㅤ<sup>„ three slashs are enough. ”</sup> <a href="https://dawnsdeath.straw.page"><img src="https://file.garden/aTDatBJtJjtpnqjn/phainui.png" width="32" align="center" title="you know where to find me"><a href="https://github.com/Dawnsdeath/flamereaver"><img src="https://file.garden/aTDatBJtJjtpnqjn/mynui.png" width="35" align="center" title="and i know where to look.">
 
-<img src="https://file.garden/aTDatBJtJjtpnqjn/mydeisleeponcatnon.png" width="300" align="center" title="rises the moon..">
+<img src="https://file.garden/aTDatBJtJjtpnqjn/mydeisleeponcatnon.png" width="270" align="center" title="rises the moon..">
 
 <br/>[![1](https://64.media.tumblr.com/63da2be9792f54be1a7cc71e47818bd0/828870b2d99689c2-b1/s75x75_c1/72514a3f363f3701c3bb830c89ce5d3a555aa3cf.pnj)](https://rentry.co/linkrose)ㅤ[![2](https://64.media.tumblr.com/e15cdc53fe9810a04873f876f09a57e9/828870b2d99689c2-db/s75x75_c1/703fb8a8389c30b88b84ce08b67049e8891c9c70.pnj)](https://rentry.co/Rose1kins)ㅤ[![3](https://64.media.tumblr.com/022a22573d89c8013404b4fcb91ab53f/828870b2d99689c2-53/s75x75_c1/dfaa245137fc6a286a52aad01fdd3d65574bdda9.pnj)](https://rentry.co/byiInts)ㅤ sign [新book](https://furinathefountain.atabook.org/)ㅤcheck [rentry!](https://rentry.co/phainui)
 
