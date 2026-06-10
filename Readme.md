@@ -1,3 +1,4 @@
+
 <!---
 
 
@@ -41,7 +42,7 @@
 <img src="https://file.garden/aTDatBJtJjtpnqjn/es.jpg" width="690" align="center" title="hah.. chickening out already?">
     
 
-<img src="https://file.garden/aTDatBJtJjtpnqjn/marcosmic1.png" width="320" align="left" title="he looks just like a dream..">
+<img width="320" align="left" title="he looks just like a dream.." src="https://github.com/user-attachments/assets/7432478d-8830-481d-b8be-5c4dd22df6f6" />
 
 <br>
 <br>
