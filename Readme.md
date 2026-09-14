@@ -52,10 +52,10 @@
         <br>
 <img src="https://file.garden/aTDatBJtJjtpnqjn/sunset2.png" width="120" align="right" alt="mydei">
 
-**Rose** ⊹ㅤ໑ㅤAny Pronouns⠀(ᵉˣᵉᵖᵗ **It/Its**) ⠀<img src="https://64.media.tumblr.com/845e1b3fec1b08d6470842f26e0794ab/4ebe151b092f0f90-03/s75x75_c1/49b7be3d8b52b6cf84a8f65d4df5a50305505492.gifv" width="15" alt="star"> <br>
-<img src="https://64.media.tumblr.com/845e1b3fec1b08d6470842f26e0794ab/4ebe151b092f0f90-03/s75x75_c1/49b7be3d8b52b6cf84a8f65d4df5a50305505492.gifv" width="15" alt="star">⠀ **yumeshipper**⠀୭⠀17y/o⠀꒦꒷ sensitive <br>
-anxious 24/7 𓏏𓏏ㅤ.ㅤ♡ॱ𓏽ㅤphaidei **int** !! <br>
-**phai, dei, reaver, khas** are my **F/Os**ㅤ♪  ͜͝ ࿐
+**Puppy** ⊹ㅤAny Pronouns⠀(ᵉˣᵉᵖᵗ **It/Its**) ⠀<img src="https://64.media.tumblr.com/845e1b3fec1b08d6470842f26e0794ab/4ebe151b092f0f90-03/s75x75_c1/49b7be3d8b52b6cf84a8f65d4df5a50305505492.gifv" width="15" alt="star"> <br>
+<img src="https://64.media.tumblr.com/845e1b3fec1b08d6470842f26e0794ab/4ebe151b092f0f90-03/s75x75_c1/49b7be3d8b52b6cf84a8f65d4df5a50305505492.gifv" width="15" alt="star">⠀ **yumeshipper**⠀୭⠀17y/o ꒦꒷ sensitive <br>
+anxious 24/7 𓏏𓏏ㅤ.ㅤ♡ॱ𓏽ㅤphaidei **int** !!! <br>
+**phai, dei, reaver, khas** are my **F/Os** ♪  ͜͝ ࿐
  <br> <br>
 please 𝐃𝐍𝐂 my Skins! ask me for 𝚰𝐍𝐒𝐏𝐎 ! <br> 
 **usually** **AFK/Semi-AFK** at Hoyo Area, feel <br>
