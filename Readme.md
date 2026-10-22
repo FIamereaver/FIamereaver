@@ -34,7 +34,6 @@
 
 <div align="center">
 
-<br>
 
 <img src="https://github.com/user-attachments/assets/92439f6c-bbd2-4662-ae70-6c4447c35af1" width="320" title=" i ❤︎ your tail, mydei! ">
 <br><br>
