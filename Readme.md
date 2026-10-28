@@ -40,7 +40,7 @@
 
 puppy ᵒᵘ pup  <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels2/04/tumblr_05fd8a278405e74303076c76c88bfc7a_9aea8f4b_75.webp" width="20" title="puppy">  17歳
 <br> ♯  they ᵗʰᵉᵐ  ꩜  [yumejin](https://pronouns.cc/samoyeds) 
-<br> [straw page](https://flamephai.straw.page/) ﹕ <a href="https://hits.sh/github.com/FIamereaver/hits/"><img alt="cycles" src="https://hits.sh/github.com/FIamereaver/hits.svg?label=Cycles&color=ffffff&labelColor=ffffff&style=flat-square"/></a> .✧
+<br> [straw page](https://flamephai.straw.page/) ﹕ <a href="https://hits.sh/github.com/FIamereaver/hits/"><img alt="cycles" src="https://hits.sh/github.com/FIamereaver/hits.svg?label=Cycle&color=ffffff&labelColor=ffffff&style=flat-square"/></a> .✧
 
 
 <h5 align="center">
