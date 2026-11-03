@@ -60,7 +60,7 @@ puppy ᵒᵘ pup  <img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pix
 
 <img src="https://github.com/user-attachments/assets/0e139cdf-75ce-4475-a364-cd4fe7a737c0" width="80" div align="right" title="haha gomen omf chan">
 ac @HazoZOYAKU on twitter <br>
-pfp @tkdqntkdwh on twitter <br><br>
+pfp @logicmaru on twitter <br><br>
 
 (=ヮ=)೨⠀⠀[links](https://guns.lol/flamereaver) ⠀ [atabook](https://flamereaver.atabook.org/) <br>
 [pts flamereaver](https://github.com/ponytowns-rewards)⠀ ૮₍ •⤙•˶
